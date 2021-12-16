@@ -1,1 +1,1 @@
-# jotsio.github.io
+# Milla Huhtala art education home pages
